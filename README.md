@@ -1,0 +1,1 @@
+# karsilikli_konum_al-sverisi
